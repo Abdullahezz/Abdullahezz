@@ -2,7 +2,7 @@
 - 👀 I’m interested in EVERYTHING!
 - 🌱 I’m currently learning Digital Marketing, Data Analysis, Web Development.
 - 💞️ I’m looking to collaborate on Also EVERYTHING.
-- 📫 How to reach me ( Sorry Iam Busy)
+- 📫 How to reach me (abdullahezz1995@gmail.com)
 
 <!---
 Abdullahezz/Abdullahezz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
